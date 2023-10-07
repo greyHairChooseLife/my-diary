@@ -1,0 +1,9 @@
+https://www.framer.com/templates/daedalus/
+https://www.framer.com/templates/bjgroup/
+https://www.framer.com/templates/justtype/
+https://www.framer.com/templates/photography-website/
+https://www.framer.com/templates/plain/
+https://www.framer.com/templates/luca/
+https://www.framer.com/templates/appleseed/
+https://www.framer.com/templates/source/
+https://www.framer.com/templates/uno/
